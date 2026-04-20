@@ -5,7 +5,7 @@
 
 
 
-![Animated GIF](parrot-dancing.gif)
+![alt-text](parrot-dancing.gif)
 
 
 
