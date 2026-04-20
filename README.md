@@ -7,7 +7,10 @@
 
 
 
-![alt-text](parrot-dancing.gif)
+
+"![Parrot Danceing Sticker](https://github.com)"
+
+
 
 
 
