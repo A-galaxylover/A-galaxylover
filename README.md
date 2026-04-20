@@ -8,8 +8,7 @@
 
 
 
-"![Parrot Danceing Sticker](https://github.com)"
-
+![Animated GIF](parrot-dancing.gif)
 
 
 
