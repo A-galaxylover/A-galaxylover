@@ -1,16 +1,18 @@
-## Hi there 👋
+# Mimi
 
-<!--
-**A-galaxylover/A-galaxylover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  WELCOME!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+![Animated GIF](parrot-dancing.gif)
+
+
+
+
+
+SIGN ATA PLZ ! ^^
+
+ [ATABOOK](https://mimimi.atabook.org/)
+ /
+ [STRAW PAGE](https://iloveguidefe2hesocute.straw.page/)
