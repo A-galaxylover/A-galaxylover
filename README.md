@@ -4,7 +4,7 @@
   WELCOME!
 
 
-
+![Alt text](https://github.com/A-galaxylover/A-galaxylover/blob/main/tumblr_8f675d235502a756f7235a6481665b48_197f351c_1280.png)
 
   
 
@@ -13,6 +13,7 @@
 
 
 
+![Alt text](https://github.com/A-galaxylover/A-galaxylover/blob/main/tumblr_8f675d235502a756f7235a6481665b48_197f351c_1280.png)
 
 
 ![Animated GIF](parrot-dancing.gif)
