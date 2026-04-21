@@ -1,6 +1,6 @@
 # 𝔐𝔦𝔪𝔦
 
-
+![Animated GIF](tumblr_042747bbe234c1b77147ba80c230c57d_9769c641_1280.gif)
   WELCOME!
 
 
