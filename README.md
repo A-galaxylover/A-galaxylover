@@ -42,3 +42,6 @@ PARROT SO CUTE AND WIFIES SO EVIL HEHE (jk)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mxwrnzd3df5mfdg72iy5omezry&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
+
+![Animated GIF](tumblr_7fb173e902c252465a9b8144aa8a1b36_79fa890e_1280.gif)
+
