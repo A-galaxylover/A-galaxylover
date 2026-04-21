@@ -20,7 +20,7 @@
 
 
 
-
+![Alt text](https://github.com/A-galaxylover/A-galaxylover/blob/main/tumblr_d13223f698b9867cd034d98b5388f476_278fa49e_1280.png)
 
 
 
@@ -34,6 +34,7 @@ SIGN ATA PLZ ! ^^
 
 ![Alt text](Screenshot_20260420_172300_TikTok.jpg)
 
+![Alt text](https://github.com/A-galaxylover/A-galaxylover/blob/main/tumblr_8f675d235502a756f7235a6481665b48_197f351c_1280.png)
 
 
 PARROT SO CUTE AND WIFIES SO EVIL HEHE (jk)
