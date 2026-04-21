@@ -6,6 +6,14 @@
 
 
 
+  
+
+![Alt text](Parrot.png)
+
+
+
+
+
 
 ![Animated GIF](parrot-dancing.gif)
 
