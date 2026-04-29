@@ -34,7 +34,16 @@ SIGN ATA PLZ ! ^^
 
 ![Alt text](Screenshot_20260420_172300_TikTok.jpg)
 
+
+[CAN ADD FRIEND!]
+
 [FREE ROBLOX ADD FRIEND! ^^](https://www.roblox.com/users/2627251195/profile)
+
+
+[DISCORD](https://discord.gg/APK89D3r)
+
+
+
 
 ![Alt text](https://github.com/A-galaxylover/A-galaxylover/blob/main/tumblr_8f675d235502a756f7235a6481665b48_197f351c_1280.png)
 
