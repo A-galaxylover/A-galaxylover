@@ -40,7 +40,7 @@ SIGN ATA PLZ ! ^^
 [FREE ROBLOX ADD FRIEND! ^^](https://www.roblox.com/users/2627251195/profile)
 
 
-[DISCORD](https://discord.gg/whTCaU5s)
+[X](https://x.com/ICE1584360)
 
 
 
